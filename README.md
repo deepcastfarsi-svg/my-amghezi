@@ -6,3 +6,5 @@ ye gav daram ghelgheliei sorkh o sefid o abie mizanam zamin hava mire nemidoni t
 dele man tange baraye hame roozayie ke raftan
 
 khatere hayi ke sakhtim na dige bar nemigardan
+
+
